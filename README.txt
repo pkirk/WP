@@ -1,0 +1,1 @@
+Some quick&dirt snippet I used
